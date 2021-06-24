@@ -18,3 +18,5 @@
 
   Temperar o franago com alho e cebola, refogar na
   panela. Depois misturar com o creme de leite, requeijao e ketchup.
+  
+  Fogo médio.
